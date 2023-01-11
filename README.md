@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @akamaulan
+- 👋 Hi, I’m Sha
 - 👀 I’m interested in games, anime, music and crypto
 - 📫 How to reach me: Discord: -sha;>#2668#2668, Email: sasshourenz@gmail.com
 
