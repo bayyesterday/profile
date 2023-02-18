@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Sha
 - 👀 I’m interested in games, anime, music and crypto
-- 📫 How to reach me: Discord: -sha#2668, Email: tuyulakasha@gmail.com
+- 📫 How to reach me: Discord: -sha#2668, Email: akashaxddc@gmail.com
 - 🔗 My portofolio: https://profile.rettamon.repl.co/
 
 <!---
