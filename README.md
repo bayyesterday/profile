@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Sha
+- 👋 Hi, I’m Bay
 - 👀 I’m interested in games, anime, music and crypto
 - 📫 How to reach me: Telegram: @bayyesterday Discord: @rettamon, Email: akashaxddc@gmail.com
 
